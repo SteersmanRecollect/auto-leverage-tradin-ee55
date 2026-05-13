@@ -1,4 +1,4 @@
-# 
+# best Automation Script for scalping bot for derivatives | isolated-margin + order-book-analysis is the best scalping bot for derivatives, featuring isolated-margin and
 
 
 
